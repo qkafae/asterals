@@ -1,1 +1,1 @@
-# asterals
+# Asterals 💫
